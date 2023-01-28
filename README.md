@@ -1,1 +1,1 @@
-# Contribution-Icon.-
+# Contribution-Icon
